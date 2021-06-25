@@ -1,6 +1,6 @@
 # Mobility
 
-Mobility isn't about access or ownership; it's about liberty - one that doesn't stand still. Liberty is a kindled desire to roam. It's about seeing a fresh breath so what is ablaze doesn't turn the candle to glaze. The absense of light pits us into a maze that unlevels the opacity into the new day, earned opportunity, and a chance for which skill not apply.
+Mobility isn't about access or ownership; it's about liberty - one that doesn't stand still. Liberty is a kindled desire to roam. It's about seeking a fresh breath so what is ablaze doesn't turn the candle to glaze. The absense of light pits us into a maze that unlevels the opacity into the new day, earned opportunity, and a chance for which skill not apply.
 
 911 is a symbol and a status we proudly grant those who can navigate the narrowest of paths and longest of ways. 412 is for one to escape hell with a hail. Let's make it happen!
 
