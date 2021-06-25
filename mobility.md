@@ -4,4 +4,4 @@ Mobility isn't about access or ownership; it's about liberty - one that doesn't 
 
 911 is a symbol and a status we proudly grant those who can navigate the narrowest of paths and longest of ways. 412 is for one to escape hell with a hail. Let's make it happen!
 
-412 is a right. It also makes a right angle :) It should have a predefined condition for a safe place and your happy place. Hopefully both are home but sometimes they could be a place to rest or a place to eat. They should not change often and if they don't, nor should the grace of its cost. The vessel for the passage is the kindness of those who wish to extend it; whever the means to the end destination.
+412 is a right. It also makes a right angle :) It should have a predefined condition for a safe place and your happy place. Hopefully both are home but sometimes they could be a place to rest or a place to eat. They should not change often and if they don't, nor should the grace of its cost. The vessel for the passage is the kindness of those who wish to extend it; whatever the means to the end destination.
