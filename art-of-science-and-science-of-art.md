@@ -6,4 +6,4 @@
 * You can't make art with science but you can produce artificats that artists can science into product
 * You can make art a science but you can't break down art into science
 * You can make artificial art with science but you can't seek intelligence as an art without a natural being
-* You can centralize information, deprive central agency into communal intelligence; but you can only wish the proccess turns out well, and pray for wisdom 
+* You can centralize information, deprive agency into communal centrist intelligence; but you can only wish the proccess turns out well, and pray for wisdom 
