@@ -4,6 +4,8 @@
 
 ### Why now?
 
+I can afford to take the reputation risk, lose social capital, and have earned the intellectual freedom.
+
 ### What is this NOT?
 
 1. Me caring. About your opinion, fact check, and everything in between.
