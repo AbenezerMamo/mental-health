@@ -25,6 +25,9 @@ I can afford to take the reputation risk, lose social capital, and have earned t
 
 ### Where can I help?
 
+1. Live life to the fullest and stop fearing about the system collapsing. When you grow up and can make time for it, I know you will be there to step in and fill my place.
+2. Rest assured that people cared before you, while you have other that need you to exclusively, and even when you are no longer around to. That's the "village" they keep talking about
+3. It starts with you, your own, and not worrying too much about your very own. I intend to enable change that doesn't need me to be around to be made, felt, or live changed
 ### When will this actualize itself into substantive action?
 
 ## 0 to 1
