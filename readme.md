@@ -28,6 +28,31 @@ I can afford to take the reputation risk, lose social capital, and have earned t
 1. Live life to the fullest and stop fearing about the system collapsing. When you grow up and can make time for it, I know you will be there to step in and fill my place.
 2. Rest assured that people cared before you, while you have other that need you to exclusively, and even when you are no longer around to. That's the "village" they keep talking about
 3. It starts with you, your own, and not worrying too much about your very own. I intend to enable change that doesn't need me to be around to be made, felt, or live changed
+
+### Is it too late for me?
+
+I once found a great video in my discovery for "how to design your life" that had advice along the lines of: "you're not late for anything and we don't should on anybody. We will meet you where you are."
+
+Another great advice was by a friend and roommate of mine who quickly shut down my attempt at prompting my sad violen about life moving too fast with: "I am exactly where I'm supposed to be." It made me pause and I let a sigh of relief and thanked him for forever changing my life and how I time it.
+
+One other insight was from a book called "Thank You for Being Late". A great read and I was only 1/4 of the way through when I left it but it left me with a calm and poised outlook on the slow and winding pace of innovation. Since then I've been unrattled by the new this and that. Instead I've taken opportunities to look backwards at history to see why and how things really evolved.
+
+Finally: two of my great mentors have been really instrumental in providing both reading & a calming sounding board as every turn in my career seemed to be a looming with doom, runaway train, & indecision filled with turmoil about what I'm missing out on or where I should have been by now.
+* One's advice was: "we'll be back here in a year laughing about it and you're just in your usual ways of flipping about about this" (pretty much). I only stared back in confusion & awe as this well off dude was watching my life fall apart and *that* was all he had to offer -_-. Awful awful joke because he ended up being right and would you know it...it was the exact same spot too. sigh...
+* Second's advice are really cryptic and we usually take walks so my ADHD was having a field day. Sapiens was a book he recommended and turns out humans were flipping their * for a long time in really odd ways.
+
+Lastly, everyone in the Make School community has seen me gone through cycles of change filled with..."bruh, I swear to * this * feels cinematic. No one is going to believe me and I just need you to know it's enough that you're here to witness this."
+
+*ahem* I used to come to my last girl with: "Don't even get me started on what this @ said and tried to pull off today.." I also imagine that to be the way all my mentors start their nights off saying about me. I live for it - I swear I love pretending like I don't even know. It antagonizes them and it fuels my inner troll. Boss moves. That's what you get for being so kind - you...I don't even know anymore..."
+
+So as you can see, it takes poise. Comes naturally. Easy. *deep breath...and then begins to inhale* Yeah, no, I don't smoke because I like getting stoned. Okay, that's a half lie / half truth. I am working on better coping mechanisms. *cuts into Bo level practice* *turns* "Have I told you about my weekend plans with the lady?"
+
+At almost a quarter of a century now, I do feel so much more calm and at ease about life. Today, and almost everyday of the past few years, I did all that I needed and wanted to do. I feel at peace with my the pace life is taking with me and I don't feel like I'm in the hell that I once was in: feeling guilty about what I'm doing / where I am currently because I felt like I should / needed to be doing something / be somewhere else. It's been damaging to my relationships with friends and family; my love life; & my own personal sanity.
+
+For the first time ever this year: I felt like I could finally see my death as a happy and joyful passage into God's kingdom. My favorite saying now is: "I don't need this; my daddy got 2 kingdoms!" haha thank you Chris Rock & team
+
+Truly, it's been such an amazing honor to be at peace. No bulletproof vest or glass; same meals and drinks as anybody; and I will chase the same opportunities and games like the rest of you - and crush you at it because I don't want to hear sh*t about why I had it different. If you * with me and I don't do anything, it's so you're forced to change without saying Abe did this or that to you. I ain't do nothin' punk! Change; stop looking behind you!
+
 ### When will this actualize itself into substantive action?
 
 ## 0 to 1
