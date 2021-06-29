@@ -2,6 +2,24 @@
 
 ## Intro
 
+### Why me?
+
+We never ask this question; there's always one winner
+
+### How long can you keep this up?
+
+1. For as long as I continue to not want or need anything from this life.
+2. As long as I continue my self-hatred that can beat all your hate for me combined.
+3. For as long as people realize I don't have to be here and nor do I want to. Say the word and I'm out!
+4. Not for long
+5. For as long as you realize I'm not being kept from anything and derailed/slowed/outdone from anything
+6. Until you believe it can't possibly be the same person
+7. Honestly, I lost hope in all of you a long time ago but willing to believe old and young people could use a champion
+8. Until I deplete all my savings, social capital, & patience
+9. I'm on vacation; already did the whole showing up thing
+10. Until your kids delete you from their name, reject your inverted morals and ethics, & remind you that they too will want to roam this earth and feel safe, loved, & respected wherever they go
+11. Until God is clear on the fact that I have no intention in being an Adam, Samson, nor Noah
+
 ### Why now?
 
 I can afford to take the reputation risk, lose social capital, and have earned the intellectual freedom.
