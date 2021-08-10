@@ -59,4 +59,37 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ### Am I comfortable leaving those friends behind to assimilate into the new - where we share a same vision of the future?
 
+## A Better Life
+
+### What does a better life look like?
+
+#### When do you imagine you'll get there?
+
+#### What do you imagine changing on the road there?
+
+#### When do you know you've reached the half way point to a better life?
+
+##### What is 1 small adjustment you can make today to jump to that half way point?
+
+#### What do you imagine being the nearing or almost-there point to that better life?
+
+#### How do you imagine you'll feel once you're near the finishing line?
+
+#### You're at the finishing line - the better life; now what?
+
+#### What do you imagine life will be like for those around you in that better life?
+
+#### A few months or years have passed. How would you feel then?
+
+#### What do you see yourself doing once that time has passed?
+
+##### What is 1 small action you can take today that you imagine only the person you just described can do?
+
+## The Continuous Game
+
+#### How many years do you imagine your career lasting?
+
+#### When do you think you'll get bored, hit a ceiling, or run out of steps on the ladder?
+
+#### What do you think triggers those points?
 
