@@ -36,7 +36,23 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ##### Am I helping those who don't know a solution exists?
 
+##### Am I helping those who don't know a problem exists?
 
+### The problem v.s. Me solving the problem
+
+#### How would I feel if I gave someone all the resources, solutions, & means to end the suffering or pain for those that face the problem? Without having ever interacted directly with those being helped...
+
+##### How do I feel about the person being helped not knowing my name?
+
+##### How do I feel about not knowing the name of the person being helped?
+
+##### How do I feel about someone else taking credit for my efforts?
+
+##### How do I feel about being forgotten from the history books for my contributions?
+
+##### How do I feel about my close friends, family, and even life partner not know about my contributions?
+
+##### How do I feel about my not being able to eliminate critics to preserve the anonymity in the contributions to the cause, people, and change resulting from the work I delivered?
 
 ### Understanding your circumstance
 
