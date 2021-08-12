@@ -110,6 +110,19 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ##### How will the people from my old community react to seeing posts from me about my new interest?
 
+### Social Expectations
+
+#### Which relationships do I see as foundational bedrocks where the world stops at the door?
+
+### Family
+
+#### What struggles has my family seen to survive?
+
+##### What should I hold on to that transcends circumstance?
+
+##### What do I need to unlearn now that we've escaped that struggle?
+
+
 ## A Better Life
 
 ### What does a better life look like?
