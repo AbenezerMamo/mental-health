@@ -16,7 +16,21 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 #### What do I care about?
 
+##### Who inspired to care about this problem?
+
+###### What was the peak or highest turning point of their career?
+
+###### What was their path to getting there?
+
+###### Which of the opportunities and calls to duty will still exist by the time I enter the field?
+
 #### What can I see myself doing to help?
+
+##### What else is going on in my life by the time I start preparing for the field? (school / training / research)
+
+##### What else is going on in my life by the time I enter the field? (internship / commercializion / new-grad)
+
+##### What is most important for me to change between the start of preparation and the start of my career?
 
 #### What kind of help does the problem need, by the time I enter the field and by time I intend to leave my mark?
 
