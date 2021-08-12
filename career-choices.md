@@ -70,6 +70,15 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ### Understanding your circumstance
 
+#### What can I do to acknowledge that today is a brand new day; create an opportunity; and take a chance on not changing?
+(Results are not instant and you have to avoid the desire for change or zest in every part of your life; especially the path that needs to be paved - brick by brick)
+
+#### What can I already designate as an activity to do that will help me remain calm when I begin to feel frustrated or restless so that I'm not interrupting the process of building a habit - day by day?
+(No matter how mentally strong or motivated you are, the hard days will come and they will test you. This activity should be a fallback / backup / emergency activity that - when used in ocassion can be a light, quick, and painless way to keep the streak going if life or the day has got you cornered or stuck and the main activity seems like a mountain. At the early stages, you need to develope skill and see yourself succeed as quickly as possible; the glamor of numbers and letters shouldn't get in the way of building real confidence that comes from seeing tangible results that you can will and act into the world to change what's in front of you)
+
+#### When can I schedule a "show & tell" to a friend or a mentor?
+(Peer pressure is a good powerful weapon you can wield to your advantage. The fear of embarrassment, disappointment, or ridicule in front of others is scary; but it is the pain and agony that will build confidence that will last beyond the mirror. You're the only one making a big deal; whatever you put in front of someone is literally magic you just crafted into the world that didn't exist before. Okay, I'll be honest...."OMGG I STILL HAVEN'T SENT THE DOC...." is the quiet background music in my day right now. So let's do everything BUT *that* thing. House needs cleaning? Youth need saving from themselves? Let's do that!!! :P)
+
 
 ### Understanding your options
 
