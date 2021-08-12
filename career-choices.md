@@ -89,6 +89,18 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ### Am I comfortable leaving those friends behind to assimilate into the new - where we share a same vision of the future?
 
+### Social Media
+
+#### Now that I've changed paths, course, or choice, how do I make way for the influencers, inspiration, community, and peers of my new universe within my existing social media accounts?
+
+#### Given my interest in curating my profile to appeal to prospect jobs, mentors, or community, what does that mean for the "old me"?
+
+#### Now that I'm finding all sorts of interesting content that's share-worthy, what should I expect from my audience - now mixed with people from my old interest and new?
+
+##### How will these two different communities react in my comment section?
+
+##### How will the people from my old community react to seeing posts from me about my new interest?
+
 ## A Better Life
 
 ### What does a better life look like?
