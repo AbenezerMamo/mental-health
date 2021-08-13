@@ -12,11 +12,31 @@ It went something like this:
 
 That was of course a dream and it ended with me deciding to be a counselor at a small school in the mountains in the middle of no where. Give or take some existential romance debacles and beautiful water with my eyes twinkling upon discovering kayaking, it was rather mundane. I do have however have my own developed thoughts on the topic of figuring out what you wanna do in life. Without further ado...
  
-### Understanding yourself
+### Understanding myself
 
 #### What do I care about?
 
-##### Who inspired to care about this problem?
+##### Is there an existing problem I can find? What or why not?
+
+##### Do I imagine the world running into trouble in the future?
+
+###### What is my forecast based on?
+(Market or population estimation sizing, census data, credible evidence, firm beliefs, close encounters, etc..)
+
+###### If that forecast ends up being right, how does the world look in 1, 7, 17, 26, or 80 years?
+
+####### Out of the 5 stages, which one do you intend being ready for serving?
+
+#### Do others care?
+
+##### Who cares?
+(People impacted v.s. People whose impact will be most effective)
+
+####### Who is tracking this problem and how will we know if it begins to worsen quicker than forecasted?
+
+#### Inspiration 
+
+##### Who inspired me to care about this problem?
 
 ###### What was the peak or highest turning point of their career?
 
