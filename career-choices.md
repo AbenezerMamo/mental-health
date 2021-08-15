@@ -111,6 +111,22 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 #### What conflict arrises when I group choices based on people, flexibility, autonomy, money, safety, and prospect?
 
+#### What variables, aside from the ones above, might I imagine will matter to me by the time I have to make a choice again?
+(By the time I am in the job search could the following come up: family, impact, sustainability, retirement, etc..)
+
+#### What needs to be possible for me to align the timeline for my choices so I'm able to evaluate all of them without being in the middle of the process for any new ones?
+(This will make decision making decisive)
+
+#### What do the organizations or people providing these options care about?
+
+##### What do they expect from me?
+
+##### What do they expect from the role?
+
+##### What do they expect from me in this role?
+
+#### What is plan for managing the relationships I've cultivated to have these choices but will ultimately be narrowed down to one choice?
+
 ## Identity
 
 ### What identity do I hold to the vision of my future self?
