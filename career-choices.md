@@ -102,6 +102,15 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ### Understanding your options
 
+#### What are recurring themes in my road here, regardless of currently interested in, that reflect across projects, key conversations, highlight moments, or even favorite chapters in class?
+
+#### What are the 8 words that repeat across all my experiences?
+(You'll begin to uncover novel and new insights when you reach 8 so don't give up)
+
+### Making choices
+
+#### What conflict arrises when I group choices based on people, flexibility, autonomy, money, safety, and prospect?
+
 ## Identity
 
 ### What identity do I hold to the vision of my future self?
