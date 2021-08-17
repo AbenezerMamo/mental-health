@@ -248,9 +248,20 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 ## The Continuous Game
 
-#### How many years do you imagine your career lasting?
+### How many years do I imagine my career lasting?
 
-#### When do you think you'll get bored, hit a ceiling, or run out of steps on the ladder?
+### When do I imagine I'll get bored, hit a ceiling, or run out of steps on the ladder?
 
-#### What do you think triggers those points?
+### What do I imagine triggers those points?
 
+### The End Game
+
+#### What is the hallmark output my career is in service of?
+
+#### How much will it cost to set myself up to be capable, able, and willing to be able to deliver on it?
+
+#### When do I imagine being able to reach this point?
+
+#### What changes in the world could speed up that timeline by 25 or 50 years?
+
+#### What changes in my life could slow down that timeline by 7, 14, or 21 years?
