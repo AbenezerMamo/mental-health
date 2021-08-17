@@ -159,6 +159,58 @@ That was of course a dream and it ended with me deciding to be a counselor at a 
 
 #### Which relationships do I see as foundational bedrocks where the world stops at the door?
 
+#### What seems like the obvious next step for the ordinary person in the same position if I look around?
+
+##### My peers
+
+##### My aspirations or motivations
+
+#### What would be the biggest mistake the ordinary person the same situation could make?
+
+##### Timing / Sequencing
+
+##### Leverage / Momentum
+
+#### Who is the loudest voice in my life about the choices I am to make?
+
+#### Who, not currently present, would I wish I could speak to for advice?
+
+##### For feedback
+
+##### For critique
+
+##### For motivation / inspiration
+
+#### What can I point to as existing evidence of the momentum and progress I've made?
+(Even if it may not be fully visible to the rest of the world)
+
+#### How do critics in my life affect me?
+(Resume, confidence, emotions, feelings, social media, etc...)
+
+##### Me v.s. Myself
+
+##### Me v.s. My World
+
+##### Me v.s. Critics
+
+##### Me v.s. The World
+
+#### How do I react to positive reinforcement?
+
+##### From the results of my work
+
+##### From my mentors
+
+##### From my peers
+
+##### From within
+
+#### What does social acceptance of my path mean to me?
+
+##### How would it take to ignore social pressure for 6 months, 2 years, 4 years, and 20 years?
+
+##### Who can I find as evidence of having perseverance thorough social pressure in their path before finally proving to the world of what they may have missed or overlooked? 
+
 ### Family
 
 #### What struggles has my family seen to survive?
