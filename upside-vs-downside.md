@@ -10,6 +10,11 @@ Of more importance is the weight that I feel this topic carries on my generation
 
 ### Protecting Downside
 
+There was an interesting Hacker News post I across a while ago about the market opportunity for robberies in the U.S. Okay, just kidding; I mean the damage done by robberies :P I checked on the latest available data and here's what I came across:
+
+According to the FBI, robberies only accounted to $482 Million in losses in 2019. Hmm given the GDP was $21 Trillion, I would say that the losses we have to what's robbed in comparison to what this country produces is quite alarming in comparison. Imagine how much money we spend on security and only imagining that thiefs collectively can't even call themselves billionaires in a year? That's both humiliating to the art of licking and to the science behind what drives our fear.
+
+The point in making is that the threats we face are much less scary than we imagine them to be. Imagine what my surprise is when the market for information security was set to exceed $100 Billion in 2019. In reference, the market cap for ADT is $6.73 Billion and the company made a little over $2 Billion in 2020. That's a single security company. In comparison to what is less than half a billion a year in losses to robberies. Mind blown.
 
 ### Creating Upside
 
