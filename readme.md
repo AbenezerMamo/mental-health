@@ -77,11 +77,20 @@ Truly, it's been such an amazing honor to be at peace. No bulletproof vest or gl
 
 ### Marker for where we are today
 
+#### If we break this down even more, what is the turning poking in the last hear?
+
+#### What parts of it are reproducible under the right conditions and circumstances?
+
+### What evidence can we create for observed inertia in the early days of 0?
+
 ### Where can we move 1 step towards that gets us an order of magnitude multiplier to tackle 1 to 10?
 
 ## 1 to 10
 
 ### What are the opportunities that could be low hanging fruit once we've saturated the obvious?
+
+### Ehat is non-inertia defined as?
+(0)
 
 ## 10 to self-serve
 
