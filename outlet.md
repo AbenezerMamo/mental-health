@@ -1,0 +1,7 @@
+# Outlet
+
+Just thinking to myself how important of an outlet this has been for me. I'm finding it hard to take myself seriously if I was to complain but I'm not gonna lie, it's been a long stretch for a year. Though to stop myself from turning this into my therapy diary, I'm gonna get back to playing have-it-all-together. So....outlets....
+
+Outlets are like that spot where you run to when you are at 1% and need to recharge. Okay, let me have one more and I'm done. They're where you can quickly plug and plunge into your stream. Okay, done. Still, it makes sense.
+
+Outlets. Yes. This is an outlet. It lets me feel like I'm contributing to something or I guess it lets me turn my sad feelings into some Ned's Survival Guide type of thing for what happens when the scene ends. Just kidding; no but seriously. The scenes in those rah-rah entrepreneur movies where they cut out all the depression, bank on the narcissism, and delete all the scenes of calls to mom pleaing for divine intervention and some comfort. Yeah! *shouts into a text box* I have actually once seen a tumbleweed roll by me in real life. I couldn't get over how hilarious and cliche the moment was. Far more so that I was looking around for someone to share it with and then considered the paradox of the moment in solitude. This is the part where audience laughter would randomly kick in. Now it just feels like the start of a bad Sienfeld episode. You ever heard of the entrepreneur who cries on GitHub? Nobody gits it
